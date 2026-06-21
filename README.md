@@ -8,7 +8,7 @@
 ## 🌐Socials
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](htttps://discord.gg/https://discord.gg/2R8z33r5) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)] [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@hevylovecake) 
 
-<img width="473" height="357" alt="1000002971" src="https://github.com/user-attachments/assets/b9951af7-172d-4dcd-b1f5-5873317002d8" />
+(⁠◕⁠ᴗ⁠◕⁠✿⁠)
 
-<img width="728" height="482" alt="1000003000" src="https://github.com/user-attachments/assets/ef4e8788-42ef-4e7a-bdb0-a5fe288310be" />
-thank watching 
+<img width="200" height="192" alt="1000002226" src="https://github.com/user-attachments/assets/e8892e26-b360-4c36-88ed-49b4cb2ac299" />
+
