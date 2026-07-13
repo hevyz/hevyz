@@ -1,2 +1,2 @@
-<img width="2048" height="1536" alt="1000003319" src="https://github.com/user-attachments/assets/26e776c9-5fbc-45e5-a42f-bfc27c835489" />
-
+<img width="735" height="438" alt="1000003346" src="https://github.com/user-attachments/assets/8e5cda02-1a3d-429b-b2cf-f611ed05e836" />
+𝗺𝗲 𝗮𝗻𝗱 𝗺𝘆 𝗽𝗼𝗼𝗸𝗶𝗲 ᵕ̈
